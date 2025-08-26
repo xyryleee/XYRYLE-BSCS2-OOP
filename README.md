@@ -1,2 +1,5 @@
 # XYRYLE-BSCS2-OOP
-For Xyryle, BSCS 2, OOP Course
+
+I am Xyryle,
+A Computer Science student,
+I am shy, determined, and yearning.
