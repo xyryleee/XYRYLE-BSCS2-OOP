@@ -3,4 +3,5 @@
 - 😎 I am Xyryle,
 - 💻 A Computer Science major,
 - 😍 I am shy, determined, and yearning.
-- 😱 LETS GOOOOO
+- 😱 Sometimes Lazy, yet absolute cinema.
+- 🤑 Future Wealthy Tito!!!
